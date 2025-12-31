@@ -1,4 +1,4 @@
-# 🚀 最新ChatGPT Plus合租攻略：国内最靠谱的ChatGPT Plus拼车平台推荐
+# 🚀 最新免费ChatGPT Plus合租攻略：国内最靠谱的ChatGPT Plus team拼车平台推荐
 
 ![主图](c809d302-f0a4-4af7-be1a-24a5d7aeb039.png)
 
