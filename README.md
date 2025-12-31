@@ -18,7 +18,9 @@
 
 ## 🔗 立即上车
 ![alt text](c96e835f-f5ec-4026-a7ee-4ee410a75596.png)
+
 点击下方链接，开启您的 AI 之旅：
+
 [👉 免费领取优惠](https://989nst.cloud/invites/join)
 
 ---
